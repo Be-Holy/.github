@@ -71,7 +71,3 @@ Be Holy is committed to honoring all paths to the divine. We ask that all contri
 ---
 
 **May your journey be steady, your heart open, and your spirit nourished.**
-
----
-
-**May your journey be steady, your heart open, and your spirit nourished.**
